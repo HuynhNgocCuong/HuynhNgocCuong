@@ -1,5 +1,5 @@
 👋 Hi, I’m Huynh Ngoc Cuong
-👀 I’m interested in Information technology
+👀 I’m interested in Information Technology
 🌱 I’m currently learning tại FPT U DN
 💞️ I’m managing Hyper Choice Zoom
 📫 How to reach me : 
