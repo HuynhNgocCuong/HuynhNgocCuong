@@ -1,7 +1,7 @@
 👋 Hi, I’m Huynh Ngoc Cuong
 👀 I’m interested in Information Technology
 🌱 I’m currently learning tại FPT U DN
-💞️ I’m managing Hyper Choice Zoom
+💞️ I’m founder Cyper Nastic
 📫 How to reach me : 
        FB : Huỳnh Ngọc Cường
        Email : zoom.chm@gmail.com
